@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+- Corona
+- Covid 19
+- Stay Home
+- Stay Safe
